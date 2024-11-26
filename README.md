@@ -7,7 +7,7 @@ Balanço mensal, com opção de editar, remover valor.
 
 Link Youtube:
 
-https://www.youtube.com/watch?v=BMUk7kOTjgY
+https://www.youtube.com/watch?v=r2jlERr2KBk&ab_channel=AlexandreGomes
 
 Feito por :
 
